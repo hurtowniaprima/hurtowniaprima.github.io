@@ -1,1 +1,1 @@
-# hurtowniaprima.github.io
+# www.hurtowniaprima.com
